@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrOwenc
+- 👀 I’m interested in Developing for Five M
+- 🌱 I’m currently learning Qbcore Framework (https://discord.gg/h3JVKBmu5F)
+- 📫 How to reach me: 𝓜𝓻 𝓞𝔀𝓮𝓷#9063 (Discord)
